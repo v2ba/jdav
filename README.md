@@ -2,14 +2,14 @@
 jdav-简单AV-简单看porn-简单AV网-简单高清影院
 1020视频
 
-请记住我们的永久地址：WWW.JDAV.US
+请记住我们的永久地址：WWW.JDAV.AT
 
 
 
-1020视频最新地址①：https://jdav.house/
+1020视频最新地址①：https://jdav.tv/
 
 
-1020视频最新地址②：https://jdav.email/
+1020视频最新地址②：https://jdav.app/
 
 
 
