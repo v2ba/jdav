@@ -6,7 +6,7 @@ jdav-简单AV-简单看porn-简单AV网-简单高清影院
 
 
 
-1020视频最新地址①：https://jdav.tv/
+1020视频最新地址①：https://jdav.vip/
 
 
 1020视频最新地址②：https://jdav.app/
